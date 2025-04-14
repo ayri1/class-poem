@@ -8,6 +8,8 @@ The trees will sing, the hills will sigh,
 The morning breaks as birds take fly.
 Their whispers dance and kiss the sky.
 
-[Your closing stanza here]
+The world awakes in gentle grace,
+With golden light on nature’s face.
+And in this hush, my spirit frees.
 
 [Your Name]
